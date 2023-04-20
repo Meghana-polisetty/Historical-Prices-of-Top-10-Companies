@@ -64,3 +64,8 @@ The business world is constantly evolving, and Amazon should continue to innovat
 And Uber which is the lowest company in the market should focus on understanding its customers' needs and finding ways to deliver exceptional experiences that differentiate it from its competitors.
 
 Can expand their services: Uber can consider expanding its services to include new types of transportation, such as bikes or scooters, or offer new services like food delivery, parcel delivery, or other related services.
+
+
+
+![image](https://user-images.githubusercontent.com/90289879/233446656-6dbbb08f-bf88-4fe7-a366-9e8f47a8be02.png)
+
